@@ -29,12 +29,14 @@ African women's writitng happened as a result of this literary journey.
 
 ### Thesis, Dissertation
 
-- :newspaper: [Narratives of Desire: Gender and Sexuality in Bugul, Aidoo and Chiziane](https://scholarsbank.uoregon.edu/xmlui/handle/1794/13342) (2013)
-            - University of Oregon
-	    - Eugene, USA
+-      :newspaper: [Narratives of Desire: Gender and Sexuality in Bugul, Aidoo and Chiziane](https://scholarsbank.uoregon.edu/xmlui/handle/1794/13342) (2013)
+
+             - University of Oregon
+	     - Eugene, USA
 	    
-- :newspaper: [Reinventando Identidades](https://sapientia.pucsp.br/handle/handle/13034?mode=full) (2007)
-            - PUC São Paulo
-            - São Paulo, Brazil         
+-      :newspaper: [Reinventando Identidades](https://sapientia.pucsp.br/handle/handle/13034?mode=full) (2007)
+
+             - PUC São Paulo
+             - São Paulo, Brazil         
 
 
