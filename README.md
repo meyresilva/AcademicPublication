@@ -25,6 +25,12 @@ African women's writitng happened as a result of this literary journey.
 - 	:newspaper: [Dancing in the Mirror in Paulina Chizine's *Niketche: Uma História de Poligamia*](https://fhrc.flinders.edu.au/transnational/vol9_issue2.html) (2017)
 	 - Flinders University 
 	 - Adelaide, Australia
+	 
+ - 	:newspaper: [The Linguistic debate in African Literatures] (https://www.revistas.usp.br/africa/article/view/96114/95337) (2010)
+         - University of São Paulo
+         - São Paulo, Brazil	
+	  
+
 ### Books
 
 ### Thesis, Dissertation
@@ -38,5 +44,10 @@ African women's writitng happened as a result of this literary journey.
 
              - PUC São Paulo
              - São Paulo, Brazil         
+
+### Conference Papers
+
+                https://discursoeidentidade.com/wp-content/uploads/2015/11/BOOK-OF-ABSTRACTS_30_May.pdf
+
 
 
