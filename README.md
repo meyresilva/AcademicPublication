@@ -17,7 +17,7 @@ African women's writitng happened as a result of this literary journey.
 	- Postcolonial Text - Paris University-XIII
 	- Villetaneuse, France 
 								
-- 	:newspaper:Metaphors of Modernity in Aidoo’s *Changes: A Love Story* (2022)
+- 	:newspaper: [Metaphors of Modernity in Aidoo’s *Changes: A Love Story*](https://rua.ua.es/dspace/bitstream/10045/121345/1/RAEI_2022_36_07.pdf) (2022)
 	- Revista de Estudios Ingleses
 	- Alicante, Spain
 								
