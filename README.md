@@ -25,3 +25,6 @@ African women's writitng happened as a result of this literary journey.
 - 	:newspaper:Dancing in the Mirror in Paulina Chizine's *Niketche: Uma História de Poligamia* (2017)
 	 - Flinders University 
 	 - Adelaide, Australia
+### Books
+
+### Thesis
