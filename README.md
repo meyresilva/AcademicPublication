@@ -47,7 +47,7 @@ African women's writitng happened as a result of this literary journey.
 	- University of Oregon
 	- Eugene, USA
 	    
--      :newspaper: [Reinventando Identidades](https://sapientia.pucsp.br/handle/handle/13034?mode=full) (2007)
+- :newspaper: [Reinventando Identidades](https://sapientia.pucsp.br/handle/handle/13034?mode=full) (2007)
 	- PUC São Paulo
 	- São Paulo, Brazil         
 
