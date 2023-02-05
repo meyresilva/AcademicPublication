@@ -36,7 +36,7 @@ African women's writitng happened as a result of this literary journey.
 - 	:newspaper: [Angela Carter's The Courtship of Mr.Lyon and The Tiger's Bride](http://publicacoes.unigranrio.edu.br/index.php/reihm/article/view/454/445) (2003)
 
 	- Unigranrio
-	- Rio de janeiro, Brazil
+	- Rio de Janeiro, Brazil
 	  
 
 ### Books
@@ -44,20 +44,17 @@ African women's writitng happened as a result of this literary journey.
 ### Thesis, Dissertation
 
 -      :newspaper: [Narratives of Desire: Gender and Sexuality in Bugul, Aidoo and Chiziane](https://scholarsbank.uoregon.edu/xmlui/handle/1794/13342) (2013)
-
-             - University of Oregon
-	     - Eugene, USA
+	- University of Oregon
+	- Eugene, USA
 	    
 -      :newspaper: [Reinventando Identidades](https://sapientia.pucsp.br/handle/handle/13034?mode=full) (2007)
-
-             - PUC São Paulo
-             - São Paulo, Brazil         
+	- PUC São Paulo
+	- São Paulo, Brazil         
 
 ### Conference Papers
 
   -      :newspaper: [Trauma and Migraion in African Women's Fiction] (https://discursoeidentidade.com/wp-content/uploads/2015/11/BOOK-OF-ABSTRACTS_30_May.pdf) (2017)
-  
-              - University of Santiago de Compostela
-              - Santiago de Compostela, Spain	
+ 	- University of Santiago de Compostela
+	- Santiago de Compostela, Spain	
 
 
