@@ -14,8 +14,8 @@ African women's writitng happened as a result of this literary journey.
 ## Publications
 
 - Gaps of Silence: Trauma, Memory and Amnesia in *Le baobab fou*(2017)
-									- Postcolonial Text - Paris University-XIII
-									-	Villetaneuse, France 
+	- Postcolonial Text - Paris University-XIII
+	-	Villetaneuse, France 
 								
 - Metaphors of Modernity in Aidoo’s *Changes: A Love Story*
                   - Revista de Estudios Ingleses
