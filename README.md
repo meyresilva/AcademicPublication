@@ -15,13 +15,13 @@ African women's writitng happened as a result of this literary journey.
 
 - Gaps of Silence: Trauma, Memory and Amnesia in *Le baobab fou*(2017)
 	- Postcolonial Text - Paris University-XIII
-	-	Villetaneuse, France 
+	- Villetaneuse, France 
 								
-- Metaphors of Modernity in Aidoo’s *Changes: A Love Story*
-                  - Revista de Estudios Ingleses
-									-	Alicante, Spain
+- Metaphors of Modernity in Aidoo’s *Changes: A Love Story*(2022)
+	- Revista de Estudios Ingleses
+	- Alicante, Spain
 								
 								
-- Dancing in the Mirror in Paulina Chizine's *Niketche: Uma História de Poligamia* 
-								 - Flinders University 
-								 - Adelaide, Australia - 2017
+- Dancing in the Mirror in Paulina Chizine's *Niketche: Uma História de Poligamia*(2017)
+	 - Flinders University 
+	 - Adelaide, Australia
