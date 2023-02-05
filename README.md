@@ -47,7 +47,7 @@ African women's writitng happened as a result of this literary journey.
 
 ### Conference Papers
 
-                https://discursoeidentidade.com/wp-content/uploads/2015/11/BOOK-OF-ABSTRACTS_30_May.pdf
+  -      :newspaper: [Trauma and Migraion in African Women's Fiction] https://discursoeidentidade.com/wp-content/uploads/2015/11/BOOK-OF-ABSTRACTS_30_May.pdf
 
 
 
