@@ -26,13 +26,17 @@ African women's writitng happened as a result of this literary journey.
 	 - Flinders University 
 	 - Adelaide, Australia
 	 
- - 	:newspaper: [The Linguistic debate in African Literatures] (https://www.revistas.usp.br/africa/article/view/96114/95337) (2010)
-         - University of São Paulo
-         - São Paulo, Brazil	
+ - 	:newspaper: [The Linguistic debate in African Literatures](https://www.revistas.usp.br/africa/article/view/96114/95337) (2010)
+        
+	- University of São Paulo
+	- São Paulo, Brazil
+        
 
-- 	:newspaper: [Angela Carter's The Courtship of Mr.Lyon and The Tiger's Bride] (http://publicacoes.unigranrio.edu.br/index.php/reihm/article/view/454/445) (2003)
-	     - Unigranrio
-	     - Rio de janeiro, Brazil
+
+- 	:newspaper: [Angela Carter's The Courtship of Mr.Lyon and The Tiger's Bride](http://publicacoes.unigranrio.edu.br/index.php/reihm/article/view/454/445) (2003)
+
+	- Unigranrio
+	- Rio de janeiro, Brazil
 	  
 
 ### Books
