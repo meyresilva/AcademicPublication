@@ -13,7 +13,7 @@ African women's writitng happened as a result of this literary journey.
 
 ## Publications
 
-- 	:newspaper: <a href="https://www.postcolonial.org/index.php/pct/article/viewFile/2165/2086" target="_blank">Gaps of Silence: Trauma, Memory and Amnesia in *Le baobab fou* </a>(2017)
+- 	:newspaper:[Gaps of Silence: Trauma, Memory and Amnesia in *Le baobab fou*](https://www.postcolonial.org/index.php/pct/article/viewFile/2165/2086)(2017)
 	- Postcolonial Text - Paris University-XIII
 	- Villetaneuse, France 
 								
