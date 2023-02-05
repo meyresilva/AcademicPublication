@@ -1,4 +1,4 @@
-# AcademicPublication
+# Academic Publication
 
 In this repository I share my articles published in peer-reviewed journals, 
 conference papers, participation in events, courses, workshops. I also make available some manuscripts and works in progress. 
